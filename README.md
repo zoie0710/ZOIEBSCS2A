@@ -1,1 +1,3 @@
-# ZOIEBSCS2A
+# ZOIE DRIZELLA M. REYES
+# Game Developer
+
